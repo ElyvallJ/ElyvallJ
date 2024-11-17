@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Elyvall_Jiddou
+- 👀 I’m interested in networking and programming
+- 🌱 I’m currently learning at collège Boréal
+- 💞️ I am open to working on any project to gain new skills and knowledge
+- 📫 How to reach me elyvallf@gmail.com or 437 663 6026
+- 😄 Pronouns: Ely
